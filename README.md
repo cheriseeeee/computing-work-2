@@ -9,3 +9,5 @@ i like to
 * eat
 * sleep
 * play the piano
+
+i was from Ngee Ann Primary school and now i'm in dunman high yay :)
