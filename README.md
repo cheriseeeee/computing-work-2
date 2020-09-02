@@ -10,6 +10,8 @@ i like to
 * sleep
 * play the piano
 
-i was from [Ngee Ann Primary school] and now i'm in dunman high yay :)
+i was from Ngee Ann Primary school and now i'm in dunman high yay :)
 
-i am in chinese orchestra because i'm amazing and ciol :P
+i am in chinese orchestra because CO is amazing
+
+k thanks byee
